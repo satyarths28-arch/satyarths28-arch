@@ -20,7 +20,7 @@ Projects will be added here as I build and document them.
 
 ## Connect With Me
 - GitHub: https://github.com/satyarths28-arch
-- LinkedIn: [Add your LinkedIn profile URL]
+- LinkedIn: [https://www.linkedin.com/in/satyarth-shukla-4288a037b?utm_source=share_via&utm_content=profile&utm_medium=member_android]
 
 ---
 ⭐ Thanks for visiting my profile!
